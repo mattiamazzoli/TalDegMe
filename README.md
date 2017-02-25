@@ -1,4 +1,1 @@
 # TalDegMe
-# TalDegMe
-# TalDegMe
-# TalDegMe
